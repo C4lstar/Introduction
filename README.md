@@ -17,7 +17,7 @@ There's more but im lazy -_-
 :zzz: Ritsu (Mp100),
 :orange: Kel (Omori),
 There's more but once again, im lazyyyyy
-### 🌀You can usally find my in the jjk section, or spawn, though im everywhere lmao
+### 🌀You can usally find my in the jjk section, Deadplate area/ Kitchen or spawn, though im everywhere lmao
 
 ![Alt text of the image](https://i.pinimg.com/736x/cb/47/5c/cb475c29af81ca22cb0f82f15f3fb80f.jpg)
 
